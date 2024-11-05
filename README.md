@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sheeps789
-- 👀 I’m interested in learning to program
+- 👀 I’m interested in learning to program one day in 2026
 - 🌱 I’m currently learning nothing but plan to learn 3D modeling in the future
 - 💞️ I’m looking to collaborate on WTP mod
 - 📫 How to reach me ...
